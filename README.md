@@ -1,1 +1,1 @@
-hhhhh bear hunt pow
+OEP 7.gépes gyak 4.nehézség
