@@ -1,1 +1,1 @@
-OEP 7.gépes gyak 4.nehézség
+OEP 6.gépes gyak 4.nehézség
